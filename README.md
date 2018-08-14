@@ -2,5 +2,6 @@
 aula 2 - controle de versao
 
 Sasha Grey
-Silvia Saint
+Alexis Texas
 Lana Rhodes
+Lexi Belle
